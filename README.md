@@ -1,1 +1,1 @@
-# exercise-exquisite-corpse
+Le grand blanc et les deux ours.
