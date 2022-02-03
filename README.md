@@ -7,6 +7,6 @@ Mais un jour il tomba sur une autre famille de grand blanc. 🏳️
 
 ## Chapitre 3
 La famille accepta d'adopter l'ours rejetté. 
-Ils installèrent un igloo à proximité d'un bivouac polaire. 
+Ils installèrent un igloo à proximité d'un *bivouac polaire*. 
 > Il est heureux!
 ## FIN du chapitre 3
